@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JellyGoat32bit
+- 👋 Hi, I’m Jelly
 - Concept artist
 - https://linktr.ee/JellyGoat
 
